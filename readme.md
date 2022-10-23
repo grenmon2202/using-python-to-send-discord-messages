@@ -1,0 +1,1 @@
+Self-botting is against discord TOS. I am not responsible if you get yourself banned. <br />
